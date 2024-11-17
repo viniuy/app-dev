@@ -7,3 +7,5 @@ Here are some of my favorite characters in GOT
 3. **Ned Stark**
 
 >I love these characters because of their roles that they are playing as, Ned's Stark death is highly influencial throughout the show but Daenerys Targaryen takes the cake
+*Heres the official site of GOT and where you can stream it*
+[Game of Thrones](https://www.hbo.com/game-of-thrones)
